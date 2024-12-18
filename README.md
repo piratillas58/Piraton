@@ -1,1 +1,1 @@
-# Piratonhttps://i.postimg.cc/VsFfGMMv/800.gif
+https://i.postimg.cc/VsFfGMMv/800.gif
